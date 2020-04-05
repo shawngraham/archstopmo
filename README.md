@@ -1,6 +1,6 @@
 # An Archaeology Stop Motion Movie Festival!
 
-## April 4 - 30th, with winners revealed May 4th.
+## April 5 - 30th, with winners revealed May 4th.
 
 Let's have a movie festival. Also, I like stop-motion films - y'know, like the [Wallace and Gromit](https://www.wallaceandgromit.com/) films. So here's what you do -
 
