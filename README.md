@@ -1,5 +1,3 @@
-# archstopmo
-
 # An Archaeology Stop Motion Movie Festival!
 
 ## April 4 - 30th, with winners revealed May 4th.
